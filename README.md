@@ -1,4 +1,4 @@
-![image](https://github.com/user-attachments/assets/7bdbf137-f75d-48ec-9083-9fe2135e47a7)# POST-TEST 2 PBO
+# POST-TEST 2 PBO
 
 Nama   : Julia Fatikhah Noor
 
